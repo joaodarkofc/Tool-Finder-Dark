@@ -1,4 +1,5 @@
-![image](https://github.com/joaodarkofc/Tool-Finder-Dark/assets/166753179/bc1048fc-bf6d-45c9-b610-d986090fe18e)
+![image](https://github.com/joaodarkofc/Tool-Finder-Dark/assets/166753179/1d3880ce-cea2-483c-b17a-c7776f4cb41d)
+
 
 
 
